@@ -44,4 +44,4 @@ Si estas Reclutando y te interesa ver evidencia de todo lo que te cuento podemos
 
 
 
-[CONTACTAME AHORA EN LINKEDIN.](https://www.linkedin.com/in/david-mejia-4b713842/)
+[CONTACTAME AHORA EN LINKEDIN.](https://www.linkedin.com/in/david-alejandro-mejia-sanchez-software-developer/)
